@@ -2,6 +2,6 @@
 - 👀 I’m interested in: nothing
 - 🌱 I’m currently learning: java
 - 💞️ I’m looking to collaborate on: idk
-- 📫 How to reach me: don't?
+- 📫 How to reach me: don't
 - 😄 Pronouns: thee/thyself
 - ⚡ Fun fact: there is no fun fact
